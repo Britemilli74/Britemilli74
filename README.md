@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Britemilli74
-- 👀 I’m interested in knowing more about beef phishing
+- 👀 I’m interested in knowing more about beef framework phishing
 - 🌱 I’m currently learning how to email phishing
-- 💞️ I’m looking to collaborate on beef phishing
+- 💞️ I’m looking to collaborate on beef framework phishing
 - 📫 How to reach me britemilli@gmail.com
 - 😄 Pronouns: 
 - ⚡ Fun fact: 
